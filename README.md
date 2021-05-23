@@ -1,6 +1,6 @@
 - 🖕 I’m @arassaygin, a Sapien from Milky Galaxy             🖕
 - 👀 I’m interested in scientific bullshits                  👀
-- 👾 I’m currently learning Sphinx, Github and Documentation 👾
+- 👾 I’m currently learning how to live                      👾
 - 💩 I’m looking to collaborate on nothing                   💩
 - 📫 How to reach me: go@fuck.yourself                       📫
 
