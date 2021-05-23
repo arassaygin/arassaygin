@@ -1,4 +1,4 @@
-- 🖕 I’m Aras Saygin, a Sapien from Milky Way                🖕
+- 🖕 I’m Aras Saygin, a Sapien from Milky way                🖕
 - 👀 I’m interested in science and nature                    👀
 - 👾 I’m currently learning how to live                      👾
 - 📫 How to reach me: aras.saygin@metu.edu.tr                📫
